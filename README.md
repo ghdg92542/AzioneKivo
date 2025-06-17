@@ -1,4 +1,4 @@
-# AzioneKivo
+# Azione Kivo
 È una truffa o una piattaforma legittima nel trading di criptovalute?
 
 [Azione Kivo](https://azionekivo.it) è una piattaforma di trading basata sull'intelligenza artificiale, progettata per soddisfare sia i principianti che i trader esperti. Offre trading con supporto VPS, tecnologia innovativa time-leap e supporto multi-asset per criptovalute, forex e materie prime. Grazie all’automazione avanzata e agli strumenti di precisione, AzioneKivo è pensata per migliorare l’efficienza e la redditività del trading.
